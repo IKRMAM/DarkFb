@@ -1,6 +1,6 @@
 ##################################################
-# Author ReCord : Sanz                           #
-# Youtube       : SANZ SOEKAMTI                  #
+# Author ReCord : nur                           #
+# instagram       : nur.hh                  #
 # GitHub        : https://github.com/B4N954N2-ID #
 # Note        : Gunakan Dengan Bijak Ya Bray ^_^ #
 ##################################################
